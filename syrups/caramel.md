@@ -23,9 +23,10 @@
 
 - Uncover and stir slowly until the color resembles light honey, about 6 minutes.
 
+
 ### Step 4
 
-- Remove from heat. Very carefully add hot water. The mixture may spurt when adding water, so stand back.
+- Remove from heat. Very carefully add hot water. The mixture may spurt 
 
 ### Step 5
 
